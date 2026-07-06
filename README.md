@@ -1,4 +1,4 @@
-# Custom Wooden Shipping Crates Near Me in Tustin | Bluerose Packaging
+## Custom Wooden Shipping Crates Near Me in Tustin | Bluerose Packaging
 
 Shipping heavy or high-value equipment requires more than standard packaging. Products such as industrial machinery, manufacturing equipment, medical devices, aerospace components, and oversized commercial items need a strong shipping solution that protects them from impacts, vibration, and rough handling throughout the transportation process. A properly engineered wooden crate creates a secure environment that helps products arrive safely whether they are moving across town or around the world.
 
